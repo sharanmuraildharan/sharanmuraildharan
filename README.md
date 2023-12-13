@@ -1,12 +1,9 @@
 - 👋 Hi, I’m @sharanmuraildharan
-- 👀 I’m interested in something not boring and coding 
-- 
-- 🌱 I’m currently learning internship
-- 💞️ I’m looking to collaborate on clone API
-- 📫 How to reach me github and even in the linked in 
+- 👀 I’m interested in programming , photography , videography and somthing thats not boring... 
+- 🌱 I’m currently learning
+- 📫 How to reach me 
 - linked in-https://www.linkedin.com/in/saran-m-55b43a24a
 - github -github.com/sharanmuraildharan
-Topics
 
 
 
