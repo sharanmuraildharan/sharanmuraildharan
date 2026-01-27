@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sharanmuraildharan
-- 👀 I’m interested in programming , photography , videography and somthing thats not boring... 
+- 👀 I’m interested in programming , photography , videography and something thats not boring... 
 - 🌱 I’m currently learning
 - 📫 How to reach me 
 - linked in-https://www.linkedin.com/in/saran-m-55b43a24a
