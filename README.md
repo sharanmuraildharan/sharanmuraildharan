@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sharanmuraildharan
+- 👋 Hi, I’m @sharanmuralidharan
 - 👀 I’m interested in programming , photography , videography and something thats not boring... 
 - 🌱 I’m currently learning
 - 📫 How to reach me 
